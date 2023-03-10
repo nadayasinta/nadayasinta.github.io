@@ -1,3 +1,0 @@
-# nadayasinta.github.io
-
-halooo
